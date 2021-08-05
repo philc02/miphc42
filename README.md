@@ -1,4 +1,4 @@
 ### Hi there 👋
- Currently looking for Fall 2021 opportunities! 🎯
+ Currently looking for Summer 2022 opportunities! 🎯
 
 
